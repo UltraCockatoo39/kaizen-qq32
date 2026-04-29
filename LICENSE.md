@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with smart Scripts for kaizen, the #1 Script. Includes anti-ban and unlimited stamina for unbeatable performance.
 
 
 
